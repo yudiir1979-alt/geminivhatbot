@@ -1,2 +1,2 @@
 # geminivhatbot
-belajar bareng FINAL PROJECT DIPERPANJANG
+belajar bareng FINAL PROJECT Yudi Irawan
